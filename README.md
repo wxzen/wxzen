@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wxzen
-- 👀 I’m interested in playing video games and programming and enjoying art and eating delicious food and reading.
+- 👀 I’m interested in playing video games and programming and enjoying art and eating delicious food and reading :)
 - 🌱 I’m currently learning algorthim and English.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
