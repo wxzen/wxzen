@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wxzen
-- 👀 I’m interested in video games,programming and enjoying art, eating delicious food, reading.
+- 👀 I’m interested in video games, programming, art, gourmet, & reading.
 - 💻 I work as a Web 3D developer to make a living, and I enjoy my job.
 - 🌱 Have a nice day,friends:)
 
